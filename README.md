@@ -1,4 +1,10 @@
 # mush
+Kontakt: mushyzg[AT]protonmail.com
+
+Preporučamo da koristite PGP key pri kontaktu:
+https://github.com/mushyZG/mush/blob/main/pgp
+
+
 RED BOY:
 
 To je "Old School" soj, bio je vrlo popularan 90-ih i mnogi su mislili da je izgubljen nakon što je gotovo nestao. Neki kažu da je "reanimirana" nakon 20 godina križanjem neklijalih spora Red Boy-a i cubensisa iz Portorika. Neki kažu da je slučajno otkrivena na pašnjaku na Floridi i kada su napravljeni otisci, primijetili su da su crvenei.
