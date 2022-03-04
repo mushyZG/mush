@@ -1,5 +1,7 @@
 # mush
-Kontakt: mushyzg[AT]protonmail.com
+Kontakt: 
+mail: mushyzg[AT]protonmail.com
+Telegram: mushyZG https://t.me/mushyZG
 
 Preporučamo da koristite PGP key pri kontaktu:
 https://github.com/mushyZG/mush/blob/main/pgp
