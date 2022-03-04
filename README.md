@@ -18,3 +18,19 @@ do 0.5 g - mikrodoza
 0.5 - 1g - lagana doza
 1g - 1.5.g - normalna doza
 1.5g - 2g - snažna doza
+
+THAI:
+
+Na Tajlandu su čarobne gljive uglavnom poznate jer se miješaju s voćnim smoothiejima i milkshakeovima. Pružaju vam ljetno putovanje koje nikada ne zaboravljate. Ali ima mnogo više od ovih cubensisa iz Tajlanda, tu su Thai Koh Samui, Ban Hua(n) i Thannon magic gljiva pod sojevi.
+
+Tajlandska magična gljiva poznata je i kao Psilocybe Samuiensis Thailand. Ova čarobna gljiva je psilocybe cubensis, vrsta psihodelične gljive čiji su glavni aktivni elementi psilocibin i psilocin.
+ 
+
+Koh Samui Super soj ili KSSS čarobne gljive
+Koh Samui Super Strain je udomaćeni soj Koh samui cubensis, predforme su stabilnije od originalnog, divljeg primjerka. Kaže se da KSSS ima veće ispiranje, otporniji je na kontaminaciju i ima velike plodove, u usporedbi s originalnim Koh Samuijem
+
+Čarobna gljiva Thai Ban Huan
+Ban Huan Thai Psilocybe Cubensis također su vratili John Allen i –Clyde- sponzoriranim putovanjem na Tajland. Gljive Ban Huan vrlo su popularne na Tajlandu i normalan dio njihove kulture.
+
+Thannon tajlandski čarobni soj gljiva
+Thannon Thai Psilocybe Cubensis je još jedan sjajan soj s tajlandskom pozadinom. Thannonove spore imaju brzu kolonizaciju. Thannon Thai gljiva raste i na njezinim tankim stapkama pojavit će se lijepi okrugli klobuci. Ovaj vrlo moćan soj će vam uzgojiti neke sjajne okuse jedinstvenih tajlandskih gljiva.
