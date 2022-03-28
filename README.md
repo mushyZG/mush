@@ -9,6 +9,11 @@ https://github.com/mushyZG/mush/blob/main/pgp
 
 RED BOY:
 
+Energíja: +++ (3)
+Mentalno: ++++ (4)
+Tjelesno: +++ (3)
+Vizualno: +++ (3)
+
 To je "Old School" soj, bio je vrlo popularan 90-ih i mnogi su mislili da je izgubljen nakon što je gotovo nestao. Neki kažu da je "reanimirana" nakon 20 godina križanjem neklijalih spora Red Boy-a i cubensisa iz Portorika. Neki kažu da je slučajno otkrivena na pašnjaku na Floridi i kada su napravljeni otisci, primijetili su da su crvenei.
 
 Gljive Red Boy imaju velike široke klobuke na srednje velikim mesnatim peteljkama. Red Boy može sporo rasti, ali ovi dečki vas neće iznevjeriti!
@@ -29,16 +34,16 @@ do 0.5 g - mikrodoza
 
 THAI:
 
-Na Tajlandu su čarobne gljive uglavnom poznate jer se miješaju s voćnim smoothiejima i milkshakeovima. Pružaju vam ljetno putovanje koje nikada ne zaboravljate. Ali ima mnogo više od ovih cubensisa iz Tajlanda, tu su Thai Koh Samui, Ban Hua(n) i Thannon magic gljiva pod sojevi.
+Energíja: +++ (3)
+Mentalno: +++ (3)
+Tjelesno: ++ (2)
+Vizualno: ++++ (4)
 
-Tajlandska magična gljiva poznata je i kao Psilocybe Samuiensis Thailand. Ova čarobna gljiva je psilocybe cubensis, vrsta psihodelične gljive čiji su glavni aktivni elementi psilocibin i psilocin.
- 
 
-Koh Samui Super soj ili KSSS čarobne gljive
-Koh Samui Super Strain je udomaćeni soj Koh samui cubensis, predforme su stabilnije od originalnog, divljeg primjerka. Kaže se da KSSS ima veće ispiranje, otporniji je na kontaminaciju i ima velike plodove, u usporedbi s originalnim Koh Samuijem
+Podrijetlom iz Tajlanda, Koh Samui Super Strain, poznat kao KSSS ili Thai 2, izolat je popularnog soja gljiva Koh Samui, koji je izvorno otkrio poznati etnomikolog John Allen. Prvi put su pronađene na otoku Ko Samui, u Tajlandskom zaljevu. Ovaj mali otok od 9,3 milje bio je samoizoliran do 1970-ih, a do tada nije imao ni ceste.
 
-Čarobna gljiva Thai Ban Huan
-Ban Huan Thai Psilocybe Cubensis također su vratili John Allen i –Clyde- sponzoriranim putovanjem na Tajland. Gljive Ban Huan vrlo su popularne na Tajlandu i normalan dio njihove kulture.
+Nađene kako rastu u ovom netaknutom staništu, super soj Koh Samui lako se prepoznaje po velikim, gotovo ravnim kapama, debelim stabljikama i gusto skupljenim strukturama. "Super" u svom nazivu upućuje na moćna svojstva soja, simbolična za zrele oblike ove gljive. Istraživači mikolozi označili su KSSS kao agresivnog raspršivača i brzog uzgoja. Kada se nađe da raste u divljini, najčešće se nalazi na rižinim poljima koja su obrađivana pomoću goveda, jer ova specifična vrsta uspijeva u takvim okruženjima kao što je kravlja balega.
 
-Thannon tajlandski čarobni soj gljiva
-Thannon Thai Psilocybe Cubensis je još jedan sjajan soj s tajlandskom pozadinom. Thannonove spore imaju brzu kolonizaciju. Thannon Thai gljiva raste i na njezinim tankim stapkama pojavit će se lijepi okrugli klobuci. Ovaj vrlo moćan soj će vam uzgojiti neke sjajne okuse jedinstvenih tajlandskih gljiva.
+Mikolozi, mikroskopisti i svi ljubitelji gljiva uživaju proučavajući ove spore, poznate po svojim intrigantnim mikroskopskim vizualima, vidljivim tijekom njihovog ranog razvoja. Jedinstvene značajke ove spore i značajna snaga također nude ogroman obrazovni potencijal. Pojačano proučavanje ovih čarobnih biljaka pokazuje se neprocjenjivim za profesionalne istraživače, koji proširuju naše temeljno znanje o medicinskim primjenama ove biljke za njegu pacijenata i psihijatriju. Takva studija također nudi važne prednosti za povijesna i antropološka istraživanja, istražujući zašto su prošle kulture koristile takve gljive u svojim lokalnim medicinskim praksama.
+
+Koh Samui Super Strain visoko je cijenjen u taksonomiji i mikroskopskim istraživanjima zbog svoje stabilnosti i otpornosti na vanjsku kontaminaciju, kao i zbog lakoće proučavanja, čak i za početnike.
