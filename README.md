@@ -11,8 +11,11 @@ https://github.com/mushyZG/mush/blob/main/pgp
 RED BOY:
 
 Energíja: +++ (3)
+
 Mentalno: ++++ (4)
+
 Tjelesno: +++ (3)
+
 Vizualno: +++ (3)
 
 To je "Old School" soj, bio je vrlo popularan 90-ih i mnogi su mislili da je izgubljen nakon što je gotovo nestao. Neki kažu da je "reanimirana" nakon 20 godina križanjem neklijalih spora Red Boy-a i cubensisa iz Portorika. Neki kažu da je slučajno otkrivena na pašnjaku na Floridi i kada su napravljeni otisci, primijetili su da su crvenei.
@@ -36,8 +39,11 @@ do 0.5 g - mikrodoza
 THAI:
 
 Energíja: +++ (3)
+
 Mentalno: +++ (3)
+
 Tjelesno: ++ (2)
+
 Vizualno: ++++ (4)
 
 
