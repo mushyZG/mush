@@ -9,6 +9,7 @@ https://github.com/mushyZG/mush/blob/main/pgp
 
 
 RED BOY:
+
 ![Cubensis-Red-Boy](https://user-images.githubusercontent.com/100863440/160341249-d0bf2d00-d664-4ebc-848d-bd0bdb55a98d.jpg)
 
 Energíja: +++ (3)
