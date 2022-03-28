@@ -9,6 +9,7 @@ https://github.com/mushyZG/mush/blob/main/pgp
 
 
 RED BOY:
+![Cubensis-Red-Boy](https://user-images.githubusercontent.com/100863440/160341249-d0bf2d00-d664-4ebc-848d-bd0bdb55a98d.jpg)
 
 Energíja: +++ (3)
 
@@ -37,6 +38,8 @@ do 0.5 g - mikrodoza
 1.5g - 2g - snažna doza
 
 THAI:
+
+![Cubensis-thai-koh-samui-super-strain](https://user-images.githubusercontent.com/100863440/160341128-7b593674-d219-4476-8868-ae8931934b85.jpg)
 
 Energíja: +++ (3)
 
