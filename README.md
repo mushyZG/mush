@@ -7,6 +7,11 @@ Telegram: mushyZG https://t.me/mushyZG
 Preporučam da koristite PGP key pri kontaktu:
 https://github.com/mushyZG/mush/blob/main/pgp
 
+Generalne preporuke:
+
+Sok od grape-fruita će pojačati učinak i cjelokupno iskustvo. Grape-fruit sok ne uzimajte ako redovno koristite lijekove jer sok može pojačati ili oslabiti svojstvo lijeka.
+Sok od limuna ili limete je također ok.
+Dovoljno je popiti 2dcl soka svakih 36 sati.
 
 RED BOY:
 
